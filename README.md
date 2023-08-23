@@ -25,3 +25,7 @@ TUTOR SEB CRACK + CHROME
     nb: apabila config saat digunakan error berarti salah tempat waktu paste text yang saya berikan.
 
 GAMPANGG BOSS!!!
+
+
+
+thx.
