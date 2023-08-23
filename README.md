@@ -1,6 +1,3 @@
-# SEB-CAK
-CEPU MATI
-
 TUTOR SEB CRACK + CHROME
 
 1. Siapkan File Config SEB (https://intra.smktelkom-mlg.sch.id/) pass smktelkom umumnya : 12345
